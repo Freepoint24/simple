@@ -1,1 +1,1 @@
-Ищу работу go разработчик
+go developer looking for a job
